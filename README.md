@@ -4,4 +4,4 @@ This repo is about #code #cool-people #travel
 
 # Who can join?
 
-Anyone who isn't an asshole.
+Anyone who isn't an asshole. JK, nobody can join.
