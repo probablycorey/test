@@ -1,7 +1,7 @@
-# Cool kids club!
+# Evil kids club
 
 This repo is about #code #cool-people #travel
 
 # Who can join?
 
-Anyone who isn't an asshole.
+Anyone who isn't an asshole!
