@@ -1,2 +1,2 @@
-I ate 4071 🧇's.
-Then 19614 👩🏼‍🎨 painted a picture of me.
+I ate 16000 🧇's.
+Then 18282 👩🏼‍🎨 painted a picture of me.
