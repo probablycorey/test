@@ -1,3 +1,2 @@
-More words\n2963.
-I ate 13558 🧇's.
-Then 5415 👩🏼‍🎨 painted a picture of me.
+I ate 27569 🧇's.
+Then 15577 👩🏼‍🎨 painted a picture of me.
