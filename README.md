@@ -1,1 +1,1 @@
-pain is an excellent teacher
+awwww, fuck it
