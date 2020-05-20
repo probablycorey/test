@@ -1,1 +1,1 @@
-i am tired of being at home
+pain is an excellent teacher
